@@ -4,7 +4,7 @@
 
 ## Jay's Christmas Wish List (In no order)
 
-- Grilling Station
+- Grilling Station (I think MIchelle is getting this) 
 - Tablet
 - Socks
   - [Athletic](https://www.amazon.com/gp/product/B083NDCLZZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
