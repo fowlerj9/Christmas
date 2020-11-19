@@ -5,7 +5,6 @@
 ## Jay's Christmas Wish List (In no order)
 
 - Grilling Station (I think MIchelle is getting this) 
-- Tablet
 - Socks (Any socks but here are ideas)
   - [Athletic](https://www.amazon.com/gp/product/B083NDCLZZ/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
   - [Warm](https://www.amazon.com/gp/product/B01INNMQ98/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
