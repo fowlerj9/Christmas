@@ -29,3 +29,4 @@
   - Sleeping Bag
   - Hiking shoes
 - Pressure washer [extension hose](https://www.amazon.com/YAMATIC-Resistant-Pressure-Replacement-Craftsman/dp/B07HLPGWL7/ref=sr_1_1_sspa?dchild=1&keywords=pressure+washer+hose&qid=1605793985&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFTUkNXRjZQUEI3OEgmZW5jcnlwdGVkSWQ9QTA5NDgxOTEzVlBPNjhOSU1IME9WJmVuY3J5cHRlZEFkSWQ9QTAzNjI0ODIyNTJES0kxMk9MUEhCJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==)
+- [Beard Trimmer](https://www.amazon.com/dp/B071RZXXZ9/?coliid=I27RPPRCPDHUXI&colid=3PQ383KFQQ5DB&psc=1&ref_=lv_ov_lig_dp_it)
