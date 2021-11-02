@@ -24,3 +24,15 @@
   - Tarp Sealant
   - Sleeping Bag
 
+
+---
+
+Tarp leaks at strings
+Hammock straps one day
+Chair sinks into ground need wide feet
+Stuff sack for tarp
+Better portable cooler?
+Small side table
+Water system
+New string of party lights, water proof if possible
+Better cooler
