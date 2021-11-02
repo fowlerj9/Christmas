@@ -12,7 +12,6 @@
 - Athletic Pants (Medium? I am a 32 waist)
 - New [sun hat](https://www.amazon.com/Dorfman-Pacific-Safari-Fossil-Large/dp/B001AF170G/ref=sr_1_14?dchild=1&keywords=dorfman%2Bpacific%2Bhats%2Bfor%2Bmen&qid=1605793675&sr=8-14&th=1&psc=1) Size Medium
 - Panthers hat / beenie And / Or Gamecocks hats (should be able to get a good deal :rofl:
-  - [One](https://www.amazon.com/New-Era-Carolina-Panthers-Beanie/dp/B01H4I6C34/ref=sr_1_124?crid=DD9C17XT0H90&dchild=1&keywords=panthers+beanie&qid=1605717784&sprefix=panthers+beanie%2Caps%2C164&sr=8-124)
   - [Two](https://www.nflshop.com/carolina-panthers/mens-carolina-panthers-new-era-blue-2017-sideline-official-sport-knit-hat/t-36268024+p-3574047718902+z-9-3317699027?_ref=p-DLP:m-GRID:i-r9c0:po-27)
   - [Three](https://www.nflshop.com/carolina-panthers/mens-carolina-panthers-new-era-blue-jake-striped-cuffed-knit-hat-with-pom/t-47266879+p-2562956560853+z-9-1637165679?_ref=p-DLP:m-GRID:i-r14c2:po-44)
   - [Regular Hats too](https://www.amazon.com/OTS-Carolina-Panthers-Challenger-Adjustable/dp/B07CK1V1T3/ref=sr_1_18?crid=2YFENNBVBYG9J&dchild=1&keywords=panthers+hat&qid=1605718572&sprefix=panthers+hat%2Caps%2C163&sr=8-18)
