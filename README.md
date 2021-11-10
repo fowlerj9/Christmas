@@ -30,6 +30,7 @@
 - Karaoke stuff? 
 - New ring light?
 - Guitar hangers?
+- fire wood rack
 
 ---
 
