@@ -23,6 +23,13 @@
 - Camping Gear
   - Tarp Sealant
   - Sleeping Bag
+  - Hammock Straps
+  - Chair or Chair legs 
+  - Stuff sack for tarp
+  - Cooler 
+  - Side table 
+  - Water Filtration System 
+  - Water Proof Lights 
 - Lawn Tractor Trailer
 - ear pods
 - Exercise stuff?
@@ -31,15 +38,7 @@
 - New ring light?
 - Guitar hangers?
 - fire wood rack
+- One Yorkville YX10 Speaker
 
----
 
-Tarp leaks at strings
-Hammock straps one day
-Chair sinks into ground need wide feet
-Stuff sack for tarp
-Better portable cooler?
-Small side table
-Water system
-New string of party lights, water proof if possible
-Better cooler
+
