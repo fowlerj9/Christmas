@@ -32,13 +32,19 @@
   - Water Proof Lights 
 - Lawn Tractor Trailer
 - ear pods
-- Exercise stuff?
-- Truck stuff?
-- Karaoke stuff? 
 - New ring light?
 - Guitar hangers?
 - fire wood rack
 - One Yorkville YX10 Speaker
+- Exercise stuff?
+  - Jogging
+  - Weights
+  - Indoor Bike 
+- Truck stuff?
+- Karaoke stuff? 
+  - Mic covers
+  - Light?
+  - Mirror?
 
 
 
