@@ -21,11 +21,12 @@
 - Snowboarding boots size 10-11... somewhere in there.
 - Camping Gear
   - Tarp Sealant
-  - Sleeping Bag
+  - Sleeping Bag - something lightweight for hiking in the spring, summer, or fall. Does not need to be a winter bag. 
   - Hammock Straps
-  - Chair or Chair legs 
-  - Stuff sack for tarp
-  - Cooler 
+  - Rocking [chair](https://www.amazon.com/GCI-Outdoor-Freestyle-Portable-Cinnamon/dp/B00D4JYR62/ref=sr_1_5?keywords=outdoor%2Bchair%2Brocker&qid=1638217189&sr=8-5&th=1)
+  - [Chair](https://www.amazon.com/Portable-Camping-Ultralight-Stabilizers-Backpacking/dp/B07VMCV1VS/ref=sr_1_17_sspa?keywords=backpacking+chair&qid=1638217044&sr=8-17-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzTDFOVk1ZVEJNUUJKJmVuY3J5cHRlZElkPUEwOTI5NzkyMkpEMkg3WTQ2TFBNQiZlbmNyeXB0ZWRBZElkPUEwMzQ3MDcwM1FPTVpTMk9EMlMwTyZ3aWRnZXROYW1lPXNwX210ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
+  - Stuff sack for tarp - something [like](https://www.amazon.com/Frelaxy-5-Pack-Ultralight-Traveling-Backpacking/dp/B08G8HCYB5/ref=sr_1_6?keywords=stuff+sack+hiking&qid=1638216738&sr=8-6)
+  - Cooler - not clear on what would be good
   - Side table - something like [this](https://www.amazon.com/Trekology-Camping-Aluminum-Portable-Folding/dp/B01COU5BXY/ref=sr_1_5?keywords=hiking+table&qid=1638215421&sr=8-5)
   - Water [Filtration System](https://www.amazon.com/Sawyer-Products-SP2160-One-Gallon-Dual-Threaded/dp/B07QFSK7H3/ref=sr_1_8?crid=1PZJCIA92STNR&keywords=hiking+water+filter+sawyer&qid=1638215309&sprefix=hiking+sawyer%2Caps%2C160&sr=8-8)
   - Water Proof string lights 
@@ -36,9 +37,6 @@
 - fire wood rack [Something like this](https://www.amazon.com/dp/B099S1SYFY/?coliid=I3ENRT2EIL6W2&colid=3PQ383KFQQ5DB&psc=1&ref_=lv_ov_lig_dp_it)
 - One Yorkville YX10 Speaker (Ask Jay for details...)
 - Exercise stuff?
-  - Jogging
-  - Weights
-  - Indoor Bike stuff
 - Truck stuff?
   - Tailgate [Bike Pad](https://www.amazon.com/Yakima-GateKeeper-Tailgate-Trucks-Medium/dp/B0794ZL3B2/ref=sr_1_1?crid=2MMLAHD4ZWJWR&keywords=truck+bike+tailgate+pad&qid=1638213238&refinements=p_89%3AYAKIMA&rnid=2528832011&s=sporting-goods&sprefix=truck+bike%2Caps%2C207&sr=1-1)  
   - Phone [holder](https://www.amazon.com/dp/B0875RKTQF?psc=1&ref=ppx_yo2_dt_b_product_details)  
@@ -50,6 +48,6 @@
 - new whiteboard markers 
 - Random records 
 - bluetooth [headphone jack receiver](https://www.amazon.com/B06-Plus-Bluetooth-Receiver-Streaming/dp/B078J3GTRK/ref=sr_1_1_sspa?crid=2UPVH67PKU9YP&keywords=bluetooth+receiver+for+home+stereo&qid=1638215044&sprefix=bluetooth+reciever%2Caps%2C183&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExU1ZJTExGSFBSNjBNJmVuY3J5cHRlZElkPUEwODI4ODEyM09FTE0yTlRKVUFBNiZlbmNyeXB0ZWRBZElkPUEwMzk5MzM2MVo2VERZN0RVNTdXQiZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
-- 
+
 
 
