@@ -1,3 +1,4 @@
+
 # Christmas
 
 ---
@@ -24,7 +25,6 @@
   - Stuff sack for tarp - something [like](https://www.amazon.com/Frelaxy-5-Pack-Ultralight-Traveling-Backpacking/dp/B08G8HCYB5/ref=sr_1_6?keywords=stuff+sack+hiking&qid=1638216738&sr=8-6)
   - Cooler backpack 
 - Lawn Tractor Trailer. For [example](https://www.amazon.com/Agri-Fab-45-0303-350-Pound-Dump-Cart/dp/B0007VTQI4/ref=sr_1_2?keywords=lawn+tractor+trailer&qid=1638215228&sr=8-2)
-- New ring light? Kinda like [this](https://www.amazon.com/Ring-Light-Phone-UBeesize-Brightness/dp/B075ZLCSGP/ref=sr_1_28?brr=1&qid=1638215136&rd=1&s=wireless&sr=1-28)
 - fire wood rack [Something like this](https://www.amazon.com/dp/B099S1SYFY/?coliid=I3ENRT2EIL6W2&colid=3PQ383KFQQ5DB&psc=1&ref_=lv_ov_lig_dp_it)
 - One Yorkville YX10 Speaker (Ask Jay for details...)
 - Exercise stuff?
@@ -34,6 +34,8 @@
   - Mic [covers](https://www.amazon.com/Windscreen-Microphone-Handheld-Perfect-Recording/dp/B07L9S1YVZ/ref=sr_1_19_sspa?keywords=microphone+cover&qid=1638213481&sr=8-19-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFGQ1RKWTdBWkpUUkImZW5jcnlwdGVkSWQ9QTAxMDAyMDZGSUg1SUk1TVdOQ0ImZW5jcnlwdGVkQWRJZD1BMDg2MzgxMTFQM08wSElSTEFQUzgmd2lkZ2V0TmFtZT1zcF9tdGYmYWN0aW9uPWNsaWNrUmVkaXJlY3QmZG9Ob3RMb2dDbGljaz10cnVl)
   - Cool Light while music play like [this](https://www.amazon.com/s?k=music%2Blight&rh=n%3A8882486011&ref=dp_bc_aui_C_4)
 - Random records 
+wood chipper
+power pruner chainsaw 
 
 
 
