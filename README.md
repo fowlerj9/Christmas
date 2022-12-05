@@ -41,7 +41,8 @@
 - [Boat hat](https://www.amazon.com/dp/B08C785J9M/?coliid=I24ROOMMSND5QT&colid=3PQ383KFQQ5DB&psc=0&ref_=lv_ov_lig_dp_it)
 - Random records 
 - wood chipper
-- power pruner chainsaw 
+- [power pruner chainsaw](https://www.amazon.com/Echo-99944200532-Power-Pruner-Attachment/dp/B003ZGLLQ8/ref=sr_1_5?keywords=echo+power+pruner&qid=1670266541&sr=8-5) for Echo
+- Echo [Edger](https://www.amazon.com/99944200475-Straight-Shaft-Edger-Attachment/dp/B079NL2BHD/ref=sr_1_6?crid=2C61GZ3K4P5FK&keywords=echo+edger&qid=1670266623&sprefix=echo+edger%2Caps%2C96&sr=8-6&ufe=app_do%3Aamzn1.fos.08f69ac3-fd3d-4b88-bca2-8997e41410bb)
 - Inflatable [lounge sofa](https://www.amazon.com/dp/B075CGZHPJ/?coliid=I1Q8MWATAA5LJT&colid=3PQ383KFQQ5DB&psc=1&ref_=lv_ov_lig_dp_it)
 
 
